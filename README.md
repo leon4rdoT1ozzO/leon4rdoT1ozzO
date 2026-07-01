@@ -63,7 +63,7 @@ Uso o **Claude** como parte do meu fluxo de desenvolvimento para:
 
 ### 📫 Contato
 
-- 💼 LinkedIn: [seu link aqui]
-- 📧 Email: [seu email aqui]
+- 💼 LinkedIn: [linkedin.com/in/leonardo-tiozzo-bb7884217](https://www.linkedin.com/in/leonardo-tiozzo-bb7884217)
+- 📧 Email: leonardo.tiozzo@icloud.com
 
 <p align="center"><i>Perfil em construção — sempre aprendendo, sempre melhorando 🚀</i></p>
